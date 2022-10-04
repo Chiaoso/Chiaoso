@@ -1,4 +1,4 @@
-Ko no dio da!
+一条懒狗
 
 
 
